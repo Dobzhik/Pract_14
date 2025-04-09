@@ -21,3 +21,9 @@
 WPF:
 
 
+
+
+![photo_5456463011779832705_x](https://github.com/user-attachments/assets/10847b80-55fe-4485-bdd4-17adf7153235)
+
+
+
