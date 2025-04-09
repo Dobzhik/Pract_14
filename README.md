@@ -22,8 +22,8 @@ WPF:
 
 
 
+![изображение](https://github.com/user-attachments/assets/4b43ea33-51fb-4986-8504-302711e404a6)
 
-![photo_5456463011779832705_x](https://github.com/user-attachments/assets/10847b80-55fe-4485-bdd4-17adf7153235)
 
 
 
